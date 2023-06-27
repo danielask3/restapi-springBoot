@@ -11,4 +11,6 @@ Daniel Avelino Silongua
 
 Feliciano Cachipata Cativa
 
+Leonardo Aliança Canhanga - Computação
+
 Osvaldo Espartano
